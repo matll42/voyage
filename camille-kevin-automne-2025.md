@@ -1,6 +1,8 @@
 # 🧳 Programme de Voyage – Québec & Montréal
 **Du mardi 23 septembre au jeudi 2 octobre**
 
+[Carte](https://www.google.com/maps/d/edit?mid=1VQeR7OhF6zjLl6ula1gf7gL1tm_Cn4w&fbclid=IwY2xjawMwSllleHRuA2FlbQIxMQABHrIGMJU7PJiyxd2PmlH1KU3k1U0_y4bViONtlvT4IKHwLKMI8Z94u0NtS6ad_aem_gSrobjhyeZ40qetJL0e8jg&ll=46.005263453642684%2C-72.3371112&z=8)
+
 ---
 
 ## 📅 Mardi 23 septembre – Arrivée & Nature
