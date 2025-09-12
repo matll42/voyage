@@ -55,7 +55,7 @@
 
 ---
 
-## 📅 Lundi 29 septembre## 📅 Lundi 29 septembre – Coaticook & Randonnée
+## 📅 Lundi 29 septembre – Coaticook & Randonnée
 - **7h30** : Dépôt Nora à la garderie  
 - Route vers **Coaticook** (≈1h)  
 - Ascension du **Mont Pinnacle**  
