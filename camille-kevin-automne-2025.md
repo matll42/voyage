@@ -53,4 +53,31 @@
 
 ---
 
-## 📅 Lundi 29 septembre
+## 📅 Lundi 29 septembre## 📅 Lundi 29 septembre – Coaticook & Randonnée
+- **7h30** : Dépôt Nora à la garderie  
+- Route vers **Coaticook** (≈1h)  
+- Ascension du **Mont Pinnacle**  
+- Visite des **Gorges de Coaticook**  
+- **16h30** : Récupération Nora
+
+---
+
+## 📅 Mardi 30 septembre – Derniers instants à Orford
+- **7h30** : Dépôt Nora à la garderie  
+- **Midi + PM** : Sortie nautique à **Orford**  
+- **15h30** : Récupération Nora  
+- **16h00** : Départ pour **Montréal** (≈2h)  
+- **Soir** : Antoine + visite nocturne de la vieille ville ?
+
+---
+
+## 📅 Mercredi 1er octobre – Montréal en beauté
+- Visite de **Montréal**  
+  - Mont Royal  
+  - Jardin Botanique
+
+---
+
+## 📅 Jeudi 2 octobre – Derniers pas
+- Matinée au **Parc Jean Drapeau**  
+- **14h00** : Départ pour l’aéroport
