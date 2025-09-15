@@ -15,7 +15,8 @@
 
 ## 📅 Mercredi 24 septembre – Découverte de Sherbrooke
 - **7h30** : Dépôt Nora à la garderie  
-- Visite de **Sherbrooke**  
+- Visite de **Sherbrooke**
+- Domaine Howard
 - **16h30** : Récupération Nora
 
 ---
@@ -26,7 +27,9 @@
   - Vieux-Québec  
   - Château Frontenac  
   - Plaines d’Abraham  
-  - Promenade des Gouverneurs  
+  - Promenade des Gouverneurs
+  - Parc du Bois-de-Coulonge
+  - Logement de 15h à 11h - 215 rue Saint-Olivier
 - **Soir** : Re-visite nocturne du Vieux-Québec ?
 
 ---
@@ -38,6 +41,8 @@
   - Basilique Sainte-Anne de Beaupré  
   - Parc de la Jacques Cartier  
   - Prolonger la visite de Québec
+  - Galeries Nationales
+  - Logement de 15h à 11h - 11487 Boulevard Valcartier
 
 ---
 
@@ -68,15 +73,19 @@
 - **7h30** : Dépôt Nora à la garderie  
 - **Midi + PM** : Sortie nautique à **Orford**  
 - **15h30** : Récupération Nora  
-- **16h00** : Départ pour **Montréal** (≈2h)  
+- **16h00** : Départ pour **Montréal** (≈2h)
+- Logement à partir de 17h - 1200 rue Crescent
 - **Soir** : Antoine + visite nocturne de la vieille ville ?
 
 ---
 
 ## 📅 Mercredi 1er octobre – Montréal en beauté
 - Visite de **Montréal**  
-  - Mont Royal  
+  - Mont Royal
+  - Place des armes
+  - Vieux port
   - Jardin Botanique
+  - Même logement
 
 ---
 
