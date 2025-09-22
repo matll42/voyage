@@ -8,15 +8,16 @@
 ## 📅 Mardi 23 septembre – Arrivée & Nature
 - **10h10** : Arrivée à Montréal  
 - Route vers **Sherbrooke** (≈2h)  
-- **PM** : Promenade au **Parc écoforestier de Johnville**  
+- **PM** : Promenade au **Domaine Howard (Sherbrooke)** ou **Parc écoforestier de Johnville**  
 - **16h30** : Récupération de Nora
 
 ---
 
-## 📅 Mercredi 24 septembre – Découverte de Sherbrooke
+## 📅 Mercredi 24 septembre – Coaticook & Randonnée
 - **7h30** : Dépôt Nora à la garderie  
-- Visite de **Sherbrooke**
-- Domaine Howard
+- Route vers **Coaticook** (≈1h)  
+- Ascension du **Mont Pinnacle**  
+- Visite des **Gorges de Coaticook**  
 - **16h30** : Récupération Nora
 
 ---
@@ -60,11 +61,10 @@
 
 ---
 
-## 📅 Lundi 29 septembre – Coaticook & Randonnée
+## 📅 Lundi 29 septembre – Découverte de Sherbrooke
 - **7h30** : Dépôt Nora à la garderie  
-- Route vers **Coaticook** (≈1h)  
-- Ascension du **Mont Pinnacle**  
-- Visite des **Gorges de Coaticook**  
+- Visite de **Sherbrooke**
+- Domaine Howard
 - **16h30** : Récupération Nora
 
 ---
